@@ -9,7 +9,7 @@ General idea
 The player will be playing missions with an upgradable airplane. In the missions the player earns money and collect weapons to upgrade his ship in the shop after a mission.
 
 Details
-----
+----xvv
 * Missions will be loaded through a json file in /files/levels/<level-code>.json.
 * Each mission has one or more objects, mostly loaded by an .obj export from Blender or other 3D programs.
 * The player will be alive as long as it's HP is greater than zero.
