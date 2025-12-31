@@ -5,7 +5,6 @@ The player will be playing missions with an upgradable airplane. In the missions
 Drakonas
 Drakonas will be a classic shoot 'em up game build with the Three.js library.  The idea is based on Raptor: Call of the shadows. A classic dos game published by Apogee Software.
 General idea
-
 Details
 ----xvv
 * Missions will be loaded through a json file in /files/levels/<level-code>.json.
