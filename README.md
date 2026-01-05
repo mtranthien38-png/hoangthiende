@@ -1,4 +1,7 @@
-
+The player will be playing missions with an upgradable airplane. In the missions the player earns money and collect weapons to upgrade his ship in the shop after a mission.
+Drakonas
+The player will be playing missions with an upgradable airplane. In the missions the player earns money and collect weapons to upgrade his ship in the shop after a mission.
+Drakonas
 
 The player will be playing missions with an upgradable airplane. In the missions the player earns money and collect weapons to upgrade his ship in the shop after a mission.
 Drakonas
