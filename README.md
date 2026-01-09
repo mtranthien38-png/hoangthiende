@@ -4,6 +4,8 @@ Drakonas will be a classic shoot 'em up game build with the Three.js library.  T
 
 Drakonas will be a classic shoot 'em up game build with the Three.js library.  The idea is based on Raptor: Call of the shadows. A classic dos game published by Apogn the missions the player earns money and collect weapons to upgrade his ship in the shop after a mission.
 
+Drakonas will be a classic shoot 'em up game build with the Three.js library.  The idea is based on Raptor: Call of the shadows. A classic dos game published by Apogn the missions the player earns money and collect weapons to upgrade his ship in the shop after a mission.
+
 Drakonas
 Call of the shadows. A classic dos game published by Apogn the missions the player earns money and collect weapons to upgrade his ship in the shop after a mission.
 Drakonas will be a classic shoot 'em up game build with the Three.js library.  The idea is based on Raptor: Call of the shadows. A classic dos game published by Apog
