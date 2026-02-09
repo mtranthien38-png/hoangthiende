@@ -1,7 +1,9 @@
 the shop after a mission.the shop after a mission.
 Drakonas wn the missions the player earns money and collect weapons to upgrade his ship in the shop after a mission.the shop after a mission.the shop after a mission.
 Drakonas wn the missions the player earns money and collect weapons to upgrade his ship in the shop after a mission.the shop after a mission.the shop 
-after a mission.
+after a mission.the shop after a mission.the shop after a mission.
+Drakonas wn the missions the player earns money and collect weapons to upgrade his ship in the shop after a mission.the shop after a mission.the shop after a mission.
+Drakonas wn the missions the player earns money and collect weapons to upgrade his ship in the shop after a mission.the shop after a mission.the shop 
 Drakonas wn the missions the player earns money and collect weapons to upgrade his ship in the shop after a mission.the shop after a mission.the shop after a mission.
 Drakonas wn the missions the player earns money and collec
 Drakonas will be a classic shoot 'em up game build with the Three.js l
