@@ -1,6 +1,6 @@
 the shothe shop after a mission.the shop after a mission.
 Drakonas wn the missions the player earns money and collect weapons to upgrade his ship in the shop after a mission.the shop after a mission.the shop after a mission.
-the shop after a mission.the shop after a mission.p after a mission.the shop after a mission.
+ a mission.the shop after a mission.the shop after a mission.the shop after a mission.p after a mission.the shop after a mission.
 Drakonas wn the missions the player earns money and collect weaponsthe shot
 he shop after a mission.the shop after a mission.the shothe shop after a mission.the shop after a mission.
 Drakonas wn the missions the player earns money and collect weapons to upgrade his ship in the shop after a mission.the shop after a mission.the shop after a mission.
@@ -9,7 +9,7 @@ the shop after a mission.the shop after a mission.p after a mission.the shop aft
 
 Drakonas wn the missions the player earns money and collect weaponsthe shot
 he shop after a mission.the shop after a mission.
-Drakonas wn the missions the player earns money and collect weapons to upgrade his ship in the shop after a mission.the shop after a mission.the shop after a mission.
+Drakonas wn the missions the player earns money and collect weapons to upgrade his ship in the shop after a mission.the shop after
 the shop after a mission.the shop after a mission.p after a mission.the shop after a mission.
 Drakonas wn the missions the player earns money and collect weapons to upgrade his ship in the shop after a mission.the shop after a mission.th
 Drakonas wn the missions the player earns money and collect weapons to upgrade his ship in the shop after a mission.the shop after a mission.the shop after a mission.
