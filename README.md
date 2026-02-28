@@ -4,6 +4,12 @@ Drakonas wn the missions the player earns money and collect weapons to upgrade h
 is ship in the shop after a mission.the shop after a mission.the shop after a mission.the shothe shop after a mission.the shop after a mission.the shothe shop after a mission.the shop after a mission.
 Drakonas wn the missions the player earns money and collecthe shothe shop after a mission.the shop after a mission.
 Drakonas wn the missions the player earns money and collect weapons to upgrade his ship in the shop after a mission.the shop after a mission.the shop after a mission.the shothe shop after a mission.the shop after a mission.the shothe shop after a mission.the shop after a mission.the shothe shop after a mission.the shop after a mission.
+Drakonas wn the missions the player earns money and collect weapons to upgrade hthe shothe shop after a mission.the shop after a mission.
+Drakonas wn the missions the player earns money and collect weapons to upgrade his ship in the shop after a mission.the shop after a mission.the shop after a mission.the shothe shop after a mission.the shop after a mission.the shothe shop after a mission.the shop after a mission.the shothe shop after a mission.the shop after a mission.
+Drakonas wn the missions the player earns money and collect weapons to upgrade h
+is ship in the shop after a mission.the shop after a mission.the shop after a mission.the shothe shop after a mission.the shop after a mission.the shothe shop after a mission.the shop after a mission.
+Drakonas wn the missions the player earns money and collecthe shothe shop after a mission.the shop after a mission.
+Drakonas wn the missions the player earns money and collect weapons to upgrade his ship in the shop after a mission.the shop after a mission.the shop after a mission.the shothe shop after a mission.the shop after a mission.the shothe shop after a mission.the shop after a mission.the shothe shop after a mission.the shop after a mission.
 Drakonas wn the missions the player earns money and collect weapons to upgrade h
 is ship in the shop after a mission.the shop after a mission.the shop after a mission.the shothe shop after a mission.the shop af
 Drakonas wn the missions the player earns money and collect weapons to upgrade his ship in the shop after a mission.the shop after a mission.the shop after a mission.the shothe shop after a 
